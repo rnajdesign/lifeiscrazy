@@ -1,0 +1,2 @@
+# lifeiscrazy
+crazy life
